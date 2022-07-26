@@ -1,1 +1,1 @@
-# FinalProject_Lagrimas-JoyceP.
+# FinalProject_Lagrimas-Joyce
